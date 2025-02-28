@@ -6,5 +6,3 @@ I seek an environment of constant learning and am always open to collaborating o
 
 If you are also passionate about technology and programming, I would be happy to connect and share ideas!
 
-social media:
-instragam:https://www.instagram.com/_marcos20k/
